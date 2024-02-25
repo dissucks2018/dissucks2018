@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @owayne
 - 👀 I’m interested in ... Sports
 - 🌱 I’m currently learning ... IST
-- 💞️ I’m looking to collaborate on ... Team Work
-- 📫 How to reach me ... wayy2trim on instagram
+- 💞️ I’m looking to collaborate on ... Business and making money 
+- 📫 How to reach me ... email me: owayne2018@icloud.com
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I like making money
 
